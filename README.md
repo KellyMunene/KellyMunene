@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KellyMunene
-- 👀 I’m interested in ...soccer
+- 👀 I’m interested in ...business technology 
 - 🌱 I’m currently learning ... ICT
 - 💞️ I’m looking to collaborate on ... App developing
 - 📫 How to reach me ...kellythuku3@gmail.com
